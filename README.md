@@ -1,1 +1,0 @@
-# freshworks_assignment
